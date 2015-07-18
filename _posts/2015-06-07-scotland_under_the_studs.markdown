@@ -2,7 +2,7 @@
 layout:     post
 title:      "Schottland unter den Stollen"
 subtitle:   "Kaum von der Fähre, schon auf dem Bike"
-date:       2015-06-06
+date:       2015-06-07
 author:     "Roland"
 header-img: "img/2014060701-bg.jpg"
 ---
