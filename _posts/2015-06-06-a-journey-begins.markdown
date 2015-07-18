@@ -4,7 +4,7 @@ title:      "Aufbruch nach Schottland"
 subtitle:   "Der Beginn einer genialen Reise..."
 date:       2015-06-06
 author:     "Roland"
-header-img: "img/20140606-a_journey_begins-bg.jpg"
+header-img: "img/2014060601-bg.jpg"
 ---
 
 Um 8:00 Uhr klingelt der Wecker. Schlaftrunken wie immer schaffe ich es die Snooze-Taste zweimal zu drücken bevor ich
