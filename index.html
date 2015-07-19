@@ -30,7 +30,7 @@ description: "Random stuff über Mountainbiking, Coding, Musik und die großen M
         {{ post.date | date: "%Y" }}
         {% if site.disqus_username %}
         &middot;
-        <a href="{{ post.url | prepend: site.baseurl }}#disqus_thread" data-disqus-identifier="{{ post.url }}">Kommentare</a>
+        <a href="{{ post.url | prepend: site.baseurl }}#comments" data-disqus-identifier="{{ site.url }}{{ post.url }}">Kommentare</a>
         {% endif %}
     </p>
 </div>
