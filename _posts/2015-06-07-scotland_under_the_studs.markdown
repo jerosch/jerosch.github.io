@@ -4,7 +4,7 @@ title:      "Schottland unter den Stollen"
 subtitle:   "Kaum von der Fähre, schon auf dem Bike"
 date:       2015-06-07
 author:     "Roland"
-header-img: "img/2014060701-bg.jpg"
+header-img: "img/2015060701-bg.jpg"
 ---
 
 Die ganze Nacht verbinge ich mehr oder wenig im Halbschlaf. Das Rumpeln vom Motor dröhnt bis zu unserer Kabine herauf.

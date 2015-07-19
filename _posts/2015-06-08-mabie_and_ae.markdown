@@ -4,7 +4,7 @@ title:      "Zwei Locations an einem Tag"
 subtitle:   "Manche würden sagen, wir sind ambitioniert..."
 date:       2015-06-08
 author:     "Roland"
-header-img: "img/2014060801-bg.jpg"
+header-img: "img/2015060801-bg.jpg"
 ---
 
 Um 07:45 Uhr geht Stefans Wecker. Wir bleiben noch etwas liegen und ich döse noch etwas vor mich hin. Die Nacht war zwar
