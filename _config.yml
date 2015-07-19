@@ -8,6 +8,7 @@ url: "http://www.schneiderroland.de"
 twitter_username: jerosch
 github_username:  jerosch
 facebook_username:  jotteres
+google_analytics_code: UA-65302967-1
 
 # Build settings
 markdown: kramdown
