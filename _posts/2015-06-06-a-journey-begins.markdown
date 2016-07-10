@@ -38,7 +38,7 @@ Mütze langsam aber stetig weg von der Fähre Richtung Wasser segelt und sich de
 ein paar Fotos und beschließen uns eine ruhige Ecke zu suchen, um unsere ersten paar Tage in Schottland zu planen. Kaum
 sitzen wir in unserer Ecke, spricht uns der Herr vom Nachbartisch an, ob wir Englisch sprechen. Wie sich herausstellen
 sollte, ist er Schotte und möchte uns ein paar Tipps für unseren Aufenthalt geben. Tatsächlich hat er einige Ideen zu
-tollen Locations, Übernachtungsmöglichkeiten und Sehenwürdigkeiten, die interessant klingen. Noch nicht mal in
+tollen Locations, Übernachtungsmöglichkeiten und Sehenswürdigkeiten, die interessant klingen. Noch nicht mal in
 Schottland angekommen profitieren wir schon von der Freundlichkeit der nördlichen Inselbewohner.
 
 Mittlerweile quält Stefan schon ganz ordentlich der Hunger (selbst Schuld, wenn man seine Pizza nicht aufisst. ;)) und

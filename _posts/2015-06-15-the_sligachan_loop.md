@@ -8,7 +8,7 @@ header-img: "img/2015061501-bg.jpg"
 ---
 
 Wir stehen etwas früher auf als uns lieb ist, aber die Gastgeberin muss um 9 Uhr zum Arzt und hat darum gebeten, dass
-wir vorher schon fertig mit frühstücken sind. Das Wetter ist heute leider nicht mehr so schön, der Himmel ist
+wir vorher schon fertig mit Frühstücken sind. Das Wetter ist heute leider nicht mehr so schön, der Himmel ist
 vollständig mit Wolken verhangen und besonders warm ist es auch nicht. Aber egal, wir brechen auf um zu dem Campingplatz
 in Sligachan zu fahren und dort die Route von Danny MacAskills letztem Video "The Ridge" zu bestreiten. Wir sind
 gespannt was uns erwartet. Auf einem Parkplatz für Wanderer parken wir und ich kopiere noch den GPX Track auf mein
@@ -19,15 +19,15 @@ das schaffen.
 Die Tour beginnt zunächst mit einer Menge Straße, bis uns das Navi auf einen kaum erkennbaren Weg den Berg hinab lotst.
 Es ist etwas sumpfig und Stefan fährt etwas zu weit, da aus dem mit Heidekraut dicht bewachsenen Gebiet kein Weg
 auszumachen ist. Also fahren wir und schieben wir halb querfeldein, bis schließlich das Navi uns wieder auf der
-vorgegebenen Linie sieht. Es folgt so etwas wie eine Abfahrt, allerings lassen uns die dicken Steine, Rinnen und
+vorgegebenen Linie sieht. Es folgt so etwas wie eine Abfahrt, allerdings lassen uns die dicken Steine, Rinnen und
 Sträucher ordentlich Vorsicht walten. Wieder rollt Stefan etwas zu weit - wir hätten über die ebenfalls kaum erkennbare
 Brücke gemusst. Nach ein paar hundert Metern erreichen wir wieder die Straße und ich hoffe, dass der Rest der Tour
 leichter zu befahren ist. Ich hatte schon so eine böse Vorahnung...
 
-Etwas weiter die Straße entlang gelangen wir an eine Bucht auf deren Parkplatz einige Leute mit dicken Objektiven auf
+Etwas weiter die Straße entlang gelangen wir an eine Bucht auf deren Parkplatz einige Leute mit dicken Objektiven an
 ihren Kameras stehen. Wir halten an und schauen etwas planlos auf das Meer hinab, bis uns eine Dame auf etwas im Wasser
-hinweist: In der Bucht tummelnn sich drei kleine Wale und Walhaie, von denen wir leider fast ausschließlich die
-Rückenflosse zu sehen bekommen. Schließlich entscheiden wir, dass wir genug gesehen haben und brechen wieder auf. Kurz
+hinweist: In der Bucht tummeln sich drei kleine Wale und Walhaie, von denen wir leider fast ausschließlich die
+Rückenflosse zu sehen bekommen. Schließlich entscheiden wir, dass spannender nicht mehr wird und brechen wieder auf. Kurz
 vor Luib geht es zum Glück auf einen Feldweg, so dass wir die recht stark befahrene Straße hinter uns lassen können. Wir
 gelangen an ein Tor, durch das wir auf eine Schafweide gelangen. Wir schlagen zunächst den falschen Weg ein, aber zum
 Glück weist uns das Navi darauf hin, so dass wir die Richtung schnell korrigieren können. Allerdings wartet dort ein
@@ -78,15 +78,15 @@ erkennen, der sich als relativ schöner und ebener Singletrail entpuppt. Es gibt
 Passagen und dicke Steine. Stellenweise gibt es sogar ein paar Felsplatten á la MacMoab, nur kleiner und ich schaffe
 zwei Passagen, an denen Stefan absteigen muss! Die unzähligen Stellen, an denen er allerdings einfach weiter gefahren
 ist und ich anhalten musste, unterschlage ich hier einfach. ;-) Immer wieder überqueren wir kleine Bäche. Von der
-Distanz und der Höhenmeter her müssten wir eigentlich bald wieder zurück sein, so dass ich mehrfach sage "Das muss der
+Distanz und den Höhenmeter her müssten wir eigentlich bald wieder zurück sein, so dass ich mehrfach sage "Das muss der
 letzte Anstieg sein". Nach dem ich diesen Satz das dritte Mal von mir gegeben habe lasse ich es einfach bleiben. Wir
 begegnen immer mehr Wanderern (sieben) und einem Jogger und fragen uns schon bei wem wir uns beschweren müssen, weil so
 viel los ist. Wir haben Einsamkeit gebucht! Es macht sich das Gefühl breit, dass dieser Trail niemals endet und wir sind
-mit unseren Kräften völlig am Ende, als wir endlich am Auto ankommen. Mit dem restlichen Hafer-Schoko-Dring, einer
+mit unseren Kräften völlig am Ende, als wir endlich am Auto ankommen. Mit dem restlichen Hafer-Schoko-Drink, einer
 Flasche Orangensaft und ein paar Stücken Shortbread gelangen wir wieder einigermaßen zu Kräften. Duschen können wir
 allerdings vorerst nicht.
 
-Wir fahren weiter nach Portree um ein B&B oder Hoste zu suchen. Allerdings ist das Hostel voll und in Portree sind sehr
+Wir fahren weiter nach Portree um ein B&B oder Hostel zu suchen. Allerdings ist das Hostel voll und in Portree sind sehr
 viele Touristen. Auch die B&Bs sind alle ausgebucht. Nach 1 1/2 Stunden Suche sind wir schon fast verzweifelt und es ist
 bereits nach 21 Uhr, als wir in Uig endlich ein B&B bekommen, das uns das örtliche Hotel (das ebenfalls ausgebucht ist)
 per Telefon klargemacht hat. Zwar hat das Zimmer nur ein Doppelbett, aber auch das ist uns wurscht, hauptsache wir haben

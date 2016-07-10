@@ -24,10 +24,10 @@ und Bachüberquerungen, so dass wir öfter das Bike schieben und auch tragen mü
 Nach den 10km West Highland Way erreichen wir einen tollen Wasserfall bei Inversnaid, ein kleines Örtchen am Loch Lomond,
 das scheinbar nur aus ein paar Häusern besteht. Wir planen unsere weitere Route und beschließen einfach mal den Berg
 hoch zu fahren und dann irgendwie wieder zurück. Schließlich wollen wir es ja ruhiger angehen lassen... Wir kämpfen uns
-also zunächst die Straße hoch und gelangen an einen an einem grünen Zaun, der gerade von zwei Männern gestrichen wird.
-Der jüngere von beiden quatscht uns an, dass wir nicht so viel auf die Autofahrer achten sollen - in Schottland gilt,
-dass Radfahrer auf der Straße vorrecht haben und sogar nebeneinander fahren dürfen. Also müssen die Autofahrer auf uns
-aufpassen. Wir erzählen noch ein bisschen, bevor wir weiter fahren.
+also zunächst die Straße hoch und gelangen an einen grünen Zaun, der gerade von zwei Männern gestrichen wird. Der jüngere
+von beiden quatscht uns an, dass wir nicht so viel auf die Autofahrer achten sollen - in Schottland gilt, dass Radfahrer
+auf der Straße vorrecht haben und sogar nebeneinander fahren dürfen. Also müssen die Autofahrer auf uns aufpassen. Spannend,
+aber so 100%ig darauf verlassen möchte ich nicht. Wir erzählen noch ein bisschen, bevor wir weiter fahren.
 
 Wir machen einiges an Strecke gut, fahren an einem See vorbei an deren Ende eine Ruine ist. Leider können wir diese
 nicht anschauen, denn das Gelände ist abgesperrt. Schade. Wir überlegen wieder welche Richtung wir einschlagen. Stefan
@@ -40,19 +40,19 @@ noch den Berg hinunter rollen müssen.
 Den Berg runter müssen wir laut Wegfindung auch jetzt, was wir gerne tun. Unten angekommen finden wir ein Cafe an einer
 Spitze des Loch Katrine, genehmigen uns einen Drink und fahren einmal die komplette West-Nord-Küste des Sees ab, die
 vollständig Auto-frei ist. Unterwegs treffen wir mehr Deutsche als Schotten (mit den einen quatschen wir und ich lasse
-mir ein Sonencreme-Refresh geben) und gelangen schließlich zum südöstlichen Zipfel des Sees, der sehr auf Tourismus
+mir ein Sonnencreme-Refresh geben) und gelangen schließlich zum südöstlichen Zipfel des Sees, der sehr auf Tourismus
 ausgerichtet ist - es werden Bootsfahrten angeboten, es gibt ein Café, einen Fahrradverlei, öffentliche Toiletten, etc.
-Wir ziehen uns jeweils eine gebackene Kartoffel rein, trinken etwas und fragen den Typen vom Fahrradverlei, wir wir am
+Wir ziehen uns jeweils eine gebackene Kartoffel rein, trinken etwas und fragen den Typen vom Fahrradverlei, wie wir am
 besten nach Balmahar kommen. Er ist ziemlich erstaunt, dass wir so weit noch fahren wollen (wir sind schon gut 5 Stunden
 unterwegs) und nennt uns einen Weg, den wir auch einschlagen. Die Straße windet sich in der prallen Sonne die Berge
 hoch, so dass man ständig sieht, wo man noch hin muss. Ziemlich langsam und ziemlich fertig habe ich das Gefühl nie
 anzukommen, doch schließlich windet sich die Straße fast genauso wieder ins Tal hinab. Natürlich auf Asphalt.
 Normalerweise würde ich etwas wie "die schönen Höhenmeter" denken, aber ich bin wieder an dem Punkt angekommen an dem
-mir wieder fast alles egal ist und ich nur noch ankommen möchte. Als wir den ersten Ort, den wir auf der Route ansteuern
+mir fast alles egal ist und ich nur noch ankommen möchte. Als wir den ersten Ort, den wir auf der Route ansteuern
 (Aberfoyle) fast erreicht haben, findet Stefan in dem rechts von uns gelegenen Wald eine kleine Einfahrt zu einem Trail,
 der uns möglicherweise auch dort hinbringen kann. Und schließlich gibt es doch noch eine richtig schöne und auch
-schnelle Abfahrt: Durch ein Lavendelfeld, das richtig schön duftet und wieder in den Wald hinein, in dem es recht Steil
-runter geht.
+schnelle Abfahrt: Durch ein Lavendelfeld, das toll duftet und wieder in den Wald hinein, in dem es recht Steil runter
+geht.
 
 Wir fahren durch Aberfoyle, halten uns am Ende rechts und fahren am berühmten(?) "Rob Roy Cafe" vorbei und
 quälen uns wieder den Asphalt auf einer viel befahrenen Straße entlang. Wir folgen der Beschilderung Richtung Dreymen,
@@ -76,14 +76,14 @@ ablegende Yacht und einige Jungs, die ins Wasser springen. Irgendwann wird es mi
 in der Sackgasse sehr schlecht wenden kann. Also rolle/schiebe ich zurück zu der Kreuzung, wo Stefan herunter kommen
 muss. Eine gefühlte Stunde später beschließe ich ihm schon einmal entgegen zu schieben. Ich habe die erste Anhöhe
 erreicht, als ich ihn in der Ferne ausmache. Wir stellen fest, dass die aktuelle Stelle (eine Kuppe) nicht wirklich zum
-Einladen geeignet ist, also rolle ich den Berg hinunter zu einer Einfahrt, in der Stefan mich einsammelt. Tatsächlich
+Einladen geeignet ist, also rolle ich den Berg hinunter zu einer Einfahrt, in der Stefan anhalten kann. Tatsächlich
 hat er nur eine dreiviertel Stunde gebraucht und das für ca. 16km. Dabei hat auf dem Weg zum Hostel sogar ein Auto
 überholt... Hut ab - unfassbar der Typ!
 
 Im Hostel stellen wir fest, dass wir nicht mehr alleine auf dem Zimmer sind. Ein junger recht schüchterner Deutscher,
 ähh, Bayer, namens Rick, der den kompletten West Highland Walk wandert und Duncan, der das gleiche macht, allerdings mit
-einer Jugendgruppe. Dusche ist Gott(!) und wir lassen den Abend gemütlich mit Orangensaft, T-Go und dem Schreiben dieser
-Zeilen ausklingen. Etwas später sind wir im Zimmer, Duncan und Rick schlafen bereits. Wir versuchen uns leise fertig zu
-machen. Der Versuch einzuschlafen wird von Jim torpediert, dem letzten Teilhaber unserer WG, der nicht ganz so leise ins
-Zimmer kommt. Kaum ins Bett gefallen schläft er bereits und liefert sich mit Duncan ein Schnarchduell. Verspricht eine
-ruhige Nacht zu werden. Not!
+einer Jugendgruppe. Dusche ist Gott(!) und wir lassen den Abend gemütlich mit Orangensaft, Cellagon T-Go und dem Schreiben
+dieser Zeilen ausklingen. Etwas später sind wir im Zimmer, Duncan und Rick schlafen bereits. Wir versuchen uns leise
+fertig zu machen. Der Versuch einzuschlafen wird von Jim torpediert, dem letzten Teilhaber unserer WG, der nicht ganz
+so leise ins Zimmer kommt. Kaum ins Bett gefallen schläft er bereits und liefert sich mit Duncan ein Schnarchduell.
+Verspricht eine ruhige Nacht zu werden. Not!

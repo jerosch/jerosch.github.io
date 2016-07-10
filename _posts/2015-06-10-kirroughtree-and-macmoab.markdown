@@ -19,10 +19,10 @@ weisen.
 Der Weg zu unserem Zielort ist nicht sehr weit und führt uns die Straße zurück, über die wir gestern nach Newton Stewart
 gefahren sind. Scheinbar haben wir die Beschilderung übersehen. Nachdem wir auf einen Schotterweg abgebogen sind
 gelangen wir bereits kurze Zeit später auf einen ziemlich großen Parkplatz, neben dem eine schnieke Hütte in den Wald
-gezimmert wurde - nur für Mountainbiker! Ok, vielleicht auch für Wanderer, aber der Bikeshop und die Duschen nebenan
+gedengelt wurde - nur für Mountainbiker! Ok, vielleicht auch für Wanderer, aber der Bikeshop und die Duschen nebenan
 deuten schon recht eindeutig auf die favorisierte Zielgruppe hin.
 
-Also holen wir die Fahrräder vom Auto und ich versuche meine Schaltung ein, die seit gestern wieder etwas nachgelassen
+Also holen wir die Fahrräder vom Auto und ich versuche meine Schaltung einzustellen, die seit gestern wieder etwas nachgelassen
 hat. Stefan erträgt es mit Geduld. Die rote Strecke geht schön los. Anstatt die Biker einfach die Waldautobahnen
 hochpedalieren zu lassen haben die Erbauer dieses Spots immer wieder Abzweigungen mit kleinen Trails geformt, die
 zwar wiederum auf Waldautobahnen enden, insgesamt aber trotzdem etwas interessanter zu befahren sind. Wir sammeln
@@ -34,9 +34,9 @@ in ein Tal radeln.
 Nach dieser Abfahrt stellen wir fest, dass wir schon an der Abzweigung zur schwarzen Route angekommen sind. Da bisher
 kaum Zeit vergangen ist und ich trotz den Anstrengungen des Vortags noch ein wenig Kraft in den Beinen spüre (und mich
 gerne überschätze, wenn ich dann mal auf dem Bike sitze), beschließen wir die schwarze Route zu versuchen. Zur Not gibt
-es auch noch einen Short-Cut, falls es doch zu viel wird. Die Enschteidung wird direkt belohnt, denn wir finden einen
+es auch noch einen Short-Cut, falls es doch zu viel wird. Die Entscheidung wird direkt belohnt, denn wir finden einen
 Fluss mit einem schönen kleinen Wasserfall. Wir klettern auf die Steine in dem Fluss, legen eine kleine Foto Session und
-kühlen uns etwas mit Hilfe des Wassers ab. Den Short-Cut der scharzen Route erreichen wir direkt nach dem ersten Anstieg
+kühlen uns etwas mit Hilfe des Wassers ab. Den Short-Cut der schwarzen Route erreichen wir direkt nach dem ersten Anstieg
 (The Judgement), so dass ich wieder mit der Entscheidung konfrontiert werde abzukürzen oder doch komplette lange Route
 zu fahren. Deutlich unsicherer als vorher entscheide ich aber auch dieses Mal wieder die volle Packung mitzunehmen und
 auch dieses Mal werde ich für meine Selbstüberschätzung belohnt: ein langer Anstieg raubt mir eine Menge Kraft,
@@ -48,13 +48,13 @@ zieht unsere Durchschnittsgeschwindigkeit extrem nach unten, aber trotzdem - ext
 etwas nochmal erleben? Der Abschluss dieser Passage endet mit einem riesigen Fels, von dem wir vorsichtig herunter rollen
 und bei dem spektakuläre Fotos entstehen. Wir sind richtig happy - irgendwann muss ich da nochmal hin.
 
-Wir kämpfen uns ziemlich entkräftet den Berg weiter hoch und nach einer weitern Abfahrt gelangen wir an eine Straße, die
+Wir kämpfen uns ziemlich entkräftet den Berg weiter hoch und nach einer weiteren Abfahrt gelangen wir an eine Straße, die
 es zu überqueren gilt. Allerdings ist die eigentliche Strecke wegen Holzarbeiten gesperrt. Ein Arbeiter, der nur herum
 steht und auf den Verkehr aufpassen soll, teilt uns mit, dass wir uns an die "Diversion" Beschilderung halten sollen.
 Gesagt getan, also rollen wir auf der Straße den Berg runter, was mir gar nicht zusagt, da ich langsam doch ziemlich
 fertig bin. Praktischerweise ist die Diversion auch gesperrt... Wir überlegen kurz was wir machen, weil auch an einem
 Pfad daneben steht, dass dieser ebenfalls nicht begehbar ist. Stefan überredet mich es trotzdem zu versuchen und so
-schieben wir den extrem steilen Berg hoch. Schon ohne Fahrrad wäre es fordernd gewesen, aber so ist es einfach unfassbar
+schieben wir den sehr steilen Berg hoch. Schon ohne Fahrrad wäre es fordernd gewesen, aber so ist es einfach unfassbar
 hart. Oben angekommen genießen wir die Aussicht und einen Riegel, während wir auf zwei Wanderer warten, die sich auf der
 anderen Seite ebenfalls den Berg hoch kämpfen. Wir rollen über den Wanderweg wieder hinunter, entlang an einem Bach,
 durch eine alte Hausruine, von der nur noch der Grundriss in Form von Steinmauern übrig ist. Nach einige Kilometern
@@ -62,8 +62,8 @@ Waldautobahn finden wir irgendwann die schwarze Route wieder. Danach kann ich mi
 mittlerweile so platt bin, dass mein einziger Gedanke "Ankommen!" ist. Es gibt noch ein paar schön geshapte Abfahrten
 mit schönen Stufen. Die Stufen gibt es aber auch in den Uphills, die den letzten Saft aus meinen Beinen ziehen. Als wir
 schließlich Pause machen wollen werden wir dermaßen von Midges attakiert, dass wir diese canceln müssen. Schließlich
-läuft die schwarze Route wieder mit der roten zusammen und wir begegnen wir zwei weiteren einheimischen Bikern, mit
-denen wir ein wenig quatschen. Wir fahren zurück, ich wünsche mir das Ende der Tour immer sehnlicher herbei. Nach ein
+läuft die schwarze Route wieder mit der roten zusammen und wir begegnen zwei weiteren einheimischen Bikern, mit
+denen wir ein wenig quatschen. Wir fahren weiter und ich wünsche mir das Ende der Tour immer sehnlicher herbei. Nach ein
 paar weiteren quälenden Anstiegen und neuen Streckenabschnitten mit tollen Sprüngen (wenn ich nicht so platt wäre...)
 erreichen wir auch endlich das Cafe. Wir füllen unsere Energie mit Kaltgetränken und Kuchen wieder auf. Die Angestellte
 des Cafes, die ein wenig Deutsch spricht und scheinbar auch biked, gibt uns noch ein paar Tipps. Nach dem wir die Bikes
@@ -76,7 +76,7 @@ Fort William gar nicht mehr schaffen. Also beschließen wir die nächst beste Ju
 anzusteuern. Ich rufe an und zum Glück ist noch etwas frei. Nach etwa drei Stunden Fahrt kommen wir schließlich am
 berühmten Loch Lomond an. Wir checken ein und stellen fest, dass die Lobhudelei der Lieder über diesen See und seine
 Umgebung nicht übertrieben sind. Es ist einfach super geil dort. Natur pur, jede Menge Wasser, schöne grüne Bäume und
-Berge rings herum. Einfach schön. Nachdem wir im 10 Meilen entfernten Nachbarort ncoh eine Pizza verdrücken ziehen wir
+Berge rings herum. Einfach schön. Nachdem wir im 10 Meilen entfernten Nachbarort noch eine Pizza verdrücken, ziehen wir
 uns aufs Zimmer zurück und versuchen zu schlafen. Da mein Bett stark quietscht traue ich mich fast nicht zu bewegen aus
 der (unnötigen) Angst Stefan vom Schlafen abzuhalten oder aufzuwecken. Zu allem Überfluss schmerzen meine Beine und die
 Mückenstiche darauf dermaßen, dass ich mal wieder fast nicht schlafen kann...

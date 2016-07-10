@@ -27,7 +27,7 @@ funktioniert. Die Abnutzung der Kette und des mittleren Kettenblatts machen sich
 leichten Gängen vom mittleren Blatt immer herunter rutscht. Also heißt es für mich umgewöhnen und mehr auf dem kleinen
 fahren.
 
-Schließlich gelangen wir zu der ersten richtigen Abfahrt. Das Ding ist richtig klasse und wir kacheln durch schön hohe
+Schließlich gelangen wir zu der ersten richtigen Abfahrt. Das Ding ist absolut klasse und wir kacheln durch schön hohe
 Anlieger, kleinere Kombinationen mit kleinen Sprüngen und ein paar Doubles. Unten angekommen können wir nicht anders als
 einfach glücklich zu grinsen, auch wenn ich mir bei einer Bachüberquerung nasse Füße hole. Der nachfolgende lange und
 steile Aufsteig erfordert dafür wiederum sehr viel meiner Kraftreserven. Auf deren oberem Viertel legen wir eine Pause
@@ -38,7 +38,7 @@ Spaß macht und mich an die Pfade bei Bensberg (Saaler Mühle) erinnert.
 
 Am Auto angekommen quatschen wir noch mit zwei Locals, die uns auf jeden Fall Ae Forrest empfehlen und diesen als den
 besten der 7-Stanes herausstellen. Wir sind skeptisch, weil Mabie schon richtig genial war, aber da wir eh nach Ae
-wollen spielt unsere Skepsis keine große Rolle. Kurz vor der Abfahrt kontrolliert tatsächlich jemand unser Parkticket.
+wollen, spielt unsere Skepsis keine große Rolle. Kurz vor der Abfahrt kontrolliert tatsächlich jemand unser Parkticket.
 Die gerade angekommenen Locals haben scheinbar noch kein Ticket gezogen - hoffentlich bleiben ihnen die 50 Pfund Strafe
 erspart.
 
@@ -46,14 +46,14 @@ Wir geben die Adresse von Ae Forest ins Navi und wir sind wieder auf der Straße
 Rally-Fahrt, wir bestaunen gemeinsam die schöne Landschaft bei bestem Wetter. Neben dem Parkplatz von Ae, auf dem
 praktischerweise unser Tagesticket von Mabie ebenfalls gilt, gibt es einen kleinen Bikeshop und Cafe. Da meine Schaltung
 zickt frage ich den Menschen im Laden, ob er mal schauen kann. Er attestiert, dass Kette, Kettenblatt und Kassette hin
-sind und schlägt vor, dass wenn wir eine halbe Stunde bis Stunde im Cafe warten, während er eben die Sachen erneuert.
-Glüklicherweise eigentlich, da auch der Schaltzug nur noch an einem seiden Faden hängt, so dass er jeden Moment hätte
-reißen können. Auf dem Trail wäre das nicht so super gekommen. Eine Runde Heißgetränk, einen Brownie und eine ordentiche
+sind und schlägt vor, dass wir eine halbe Stunde bis Stunde im Cafe warten, während er eben die Sachen erneuert.
+Glücklicherweise eigentlich, da auch der Schaltzug nur noch an einem seiden Faden hängt, so dass er jeden Moment hätte
+reißen können. Auf dem Trail wäre das nicht so super gekommen. Eine Runde Heißgetränk, einen Brownie und eine ordentliche
 Portion im WLAN Austoben später, steht er auch schon auf der Matte und erklärt sein Werk für vollendet. Ich danke ihm
 herzlich, lasse die 105 Pfund auf dem Tisch und Stefans Sonnenbrille auf dem Hocker liegen. Ich bin so happy, dass jetzt
-endlich wieder alles funktioniert, dass ich das erst nach dem etwas steileren Serpentinen-Aufstieg bemerke. Langsam
+endlich wieder alles funktioniert, dass ich die Brille erst nach dem etwas steileren Serpentinen-Aufstieg vermisse. Langsam
 spüre ich auch deutlich die Kilometer, Uphills, Hügel und Steine der vorherigen Fahrten. Wir sind lange unterwegs ohne
-einer wirkklichen Abfahrt zu begegnen. Dafür aber einigen steileren Anstiegen und kleineren hügeligen Passagen, so dass
+einer wirklichen Abfahrt zu begegnen. Dafür aber einigen steileren Anstiegen und kleineren hügeligen Passagen, so dass
 ich mich frage, was im Vergleich zu den anderen so toll sein soll. Die Antwort: Die geilste(!) Abfahrt, die ich je
 gefahren bin. Ohne Scheiß. Anlieger, Flow, Stufen, Kicker, Tables, alles dabei und das mit phantastischem Panorama.
 Wirklich schade, dass Stefans GoPro Akku leer ist und er keine Ersatzakkus dabei hatte... Das Ding ist aber so gut, dass
