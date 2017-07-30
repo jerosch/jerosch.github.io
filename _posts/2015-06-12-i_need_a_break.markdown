@@ -35,13 +35,13 @@ Etwas später brechen wir nach Fort William auf und genießen erneut ein fantast
 Berge, endlose Landschaften mit kleinen Flüssen und das bei blauem Himmel - einfach klasse! Wir halten an einem kleinen
 Parkplatz an, der an einer Schlucht liegt auf deren anderer Seite ein ordentliches Massiv in den Himmel ragt. Hier und
 da stürzen sich Wasserfälle in die Tiefe. Eine phäneomenale Ansicht. Der Meinung sind offensichtlich auch noch jede
-Menge andere Leute. Als schließlich drei Touristenbusse mit Asiaten anrollen ergreifen wir die Flucht.
+Menge anderer Leute. Als schließlich drei Touristenbusse mit Asiaten anrollen ergreifen wir die Flucht.
 
 Als wir schließlich durch Glen Coe fahren entdecken wir ein Schild, das den Weg nach Kinlochleven weist. Hatte die Dame
 aus dem Bistro von Kirroughtree uns das nicht empfohlen? Wir entscheiden uns spontan diese Richtung einzuschlagen. Etwas
 später bereuen wir diese Entscheidung, denn an der Straße werden gerade Arbeiten durchgeführt und es liegt jede Menge
 Splitt herum. Ein Steinchen verklemmt sich in der Bremse, so dass es furchtbar quietscht und wir schon Angst haben, dass
-wir eine Werkstatt aufsuchen müssen. Glücklicherweise verabschiedet sich zum Glück der Stein und das Geräusch mit ihm.
+wir eine Werkstatt aufsuchen müssen. Glücklicherweise verabschiedet sich der Stein und das Geräusch mit ihm.
 In Kinlochleven angekommen kaufen wir im Supermarkt zunächst etwas zu trinken und ein paar Kekse, setzen uns auf eine
 Parkbank und freuen uns über unsere Freiheit und diesen wunderschönen Ort gefunden zu haben. Es passt einfach alles.
 

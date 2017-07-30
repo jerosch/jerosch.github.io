@@ -41,8 +41,8 @@ Den Berg runter müssen wir laut Wegfindung auch jetzt, was wir gerne tun. Unten
 Spitze des Loch Katrine, genehmigen uns einen Drink und fahren einmal die komplette West-Nord-Küste des Sees ab, die
 vollständig Auto-frei ist. Unterwegs treffen wir mehr Deutsche als Schotten (mit den einen quatschen wir und ich lasse
 mir ein Sonnencreme-Refresh geben) und gelangen schließlich zum südöstlichen Zipfel des Sees, der sehr auf Tourismus
-ausgerichtet ist - es werden Bootsfahrten angeboten, es gibt ein Café, einen Fahrradverlei, öffentliche Toiletten, etc.
-Wir ziehen uns jeweils eine gebackene Kartoffel rein, trinken etwas und fragen den Typen vom Fahrradverlei, wie wir am
+ausgerichtet ist - es werden Bootsfahrten angeboten, es gibt ein Café, einen Fahrradverleih, öffentliche Toiletten, etc.
+Wir ziehen uns jeweils eine gebackene Kartoffel rein, trinken etwas und fragen den Typen vom Fahrradverleih, wie wir am
 besten nach Balmahar kommen. Er ist ziemlich erstaunt, dass wir so weit noch fahren wollen (wir sind schon gut 5 Stunden
 unterwegs) und nennt uns einen Weg, den wir auch einschlagen. Die Straße windet sich in der prallen Sonne die Berge
 hoch, so dass man ständig sieht, wo man noch hin muss. Ziemlich langsam und ziemlich fertig habe ich das Gefühl nie
@@ -51,7 +51,7 @@ Normalerweise würde ich etwas wie "die schönen Höhenmeter" denken, aber ich b
 mir fast alles egal ist und ich nur noch ankommen möchte. Als wir den ersten Ort, den wir auf der Route ansteuern
 (Aberfoyle) fast erreicht haben, findet Stefan in dem rechts von uns gelegenen Wald eine kleine Einfahrt zu einem Trail,
 der uns möglicherweise auch dort hinbringen kann. Und schließlich gibt es doch noch eine richtig schöne und auch
-schnelle Abfahrt: Durch ein Lavendelfeld, das toll duftet und wieder in den Wald hinein, in dem es recht Steil runter
+schnelle Abfahrt: Durch ein Lavendelfeld, das toll duftet und wieder in den Wald hinein, in dem es recht steil runter
 geht.
 
 Wir fahren durch Aberfoyle, halten uns am Ende rechts und fahren am berühmten(?) "Rob Roy Cafe" vorbei und

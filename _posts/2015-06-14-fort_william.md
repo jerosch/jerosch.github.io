@@ -21,11 +21,11 @@ Richtung meines Mantels am Hinterrad, den ich zu Hause offensichtlich verkehrthe
 Touren so anstrengend waren. ;-)
 
 Wir entscheiden uns zunächst für normale Bike Kleidung und Knieschoner, wie auch die letzten Tage, da wir zunächst eine
-der roten Touren abklappern wollen. Diese besteht aus ca. 8km Singeltrack und fängt mit einem recht ordentlichem
+der roten Touren abklappern wollen. Diese besteht aus ca. 8km Singeltrack und fängt mit einem recht ordentlichen
 Aufstieg an. Wir überqueren eine Brücke mit riesigen Brocken im Fluss darunter, bevor der Weg sich wieder ziemlich steil
 den Weg hochwindet. Wir kämpfen und schaffen es ohne abszusteigen. Wir nehmen die Extra-Schleife für einen schwarzen
 Teil mit, der auch ganz lustig ist, die schwarze Wertung aber nicht verdient - da haben wir schon wildere Sachen
-gesehen. Es geht runter in ein paar Serpentinen mit teilweise hohen anliegern und kleinen Sprüngen. Schön flowig. Wir
+gesehen. Es geht runter in ein paar Serpentinen mit teilweise hohen Anliegern und kleinen Sprüngen. Schön flowig. Wir
 überqueren die Auffahrt und gelangen in eine etwas technischere Passage, die immer mal wieder ein wenig Flow mit sich
 bringt. Die Rückfahrt zum Parkplatz ist eher so lala, ganz ok zum ausklingen. Am Ende der Route vermissen wir etwas die
 Beschilderung, so dass wir mehr oder weniger aufgeben und einfach wieder zur Station radeln. Viel zu holen gab es
@@ -34,23 +34,23 @@ vermutlich aber eh nicht mehr.
 Wir überlegen, ob wir schon was essen sollen, aber das Frühstück versorgt uns noch mit Energie. Also nehmen wir noch die
 zweite rote Tour mit, die "10 under the Ben" heißt. Ich meine gelesen zu haben, dass die 10 für die Anzahl Kilometer
 steht, aber es waren doch 10 Meilen, wie sich später herausstellen soll. Insgesamt handelt es sich dabei um eine eher
-flache und schnelle Strecke mit ein paar Northshore Elementen im Uphill am Anfang und eine kleinere Steile Passage. Die
+flache und schnelle Strecke mit ein paar Northshore Elementen im Uphill am Anfang und eine kleinere steile Passage. Die
 rote Einstufung kommt wohl eher von der Anforderung an die Kondition und weniger von dem benötigten technischen Können.
-An einem langen Single-Trail, der minimal Bergab geht fährt mir Stefan weit davon, da ich die Kilometer doch langsam
+An einem langen Single-Trail, der minimal bergab geht fährt mir Stefan weit davon, da ich die Kilometer doch langsam
 spüre und keine Lust auf Trampeln habe. Dafür meint Stefan am nächsten Uphill, dass er sein Dauertreten jetzt auch
 merkt, so dass ich es tatsächlich schaffe ein wenig vor ihm (!) den Anstieg hoch zu kurbeln.
 
 Wir gelangen oberhalb von der Lift-Station an eine Parallele zum Hang, an denen unsere Strecke den Downhill-Kurs, als
 auch die rote "XC Extreme" Abfahrt kreuzt. Da unsere Pfeile geradeaus zeigen, lassen wir uns zunächst davon nicht
 beeindrucken gelangen wieder an die Brücke mit den Dicken Steinen im Bach darunter. Schließlich kommt endlich eine
-schöne Abfahrt, an der wir einen Anlieger mit Northshore-Elementen verpassen, so dass wieder hoch schieben und das Ganze
+schöne Abfahrt, an der wir einen Anlieger mit Northshore-Elementen verpassen, so dass wir wieder hoch schieben und das Ganze
 nochmal versuchen. Schließlich gelangen wir zu der "Nessie" Passage, die auf dem Plan als "schwarz" markiert wurde. Hier
 trifft es definitiv zu, über dicke Stufen bahnt man sich den Weg in eine sehr steile Steinsektion. Ich traue mich,
 bremse aber zu stark mit dem Hinterrad, so dass ich mehr hinunter rutsche, als fahre. Beim zweiten Mal würde ich es
 anders machen, aber ich bin zu faul noch einmal hoch zu schieben und so geil bin ich auf den Adrenalinkick nun auch
 nicht. Stefan, der versehentlich den falschen Weg genommen hat, schiebt aber hoch und fährt den richtigen Abschnitt
-deutlich eleganter als ich das gemacht habe. Auf dem Rückweg zum Parkplatz begegnen wir noch einmal recht langen
-Northshore Uphills, der so spaßig ist, dass Stefan auf den ersten paar Metern anhält und zurück fährt, um das auf der
+deutlich eleganter als ich das gemacht habe. Auf dem Rückweg zum Parkplatz begegnen wir noch einmal einem recht langen
+Northshore Uphill, der so spaßig ist, dass Stefan auf den ersten paar Metern anhält und zurück fährt, um das auf der
 GoPro festzuhalten. Der Rest der Strecke deckt sich ziemlich mit der ersten roten Tour. Wir fahren gemütlich über
 Schotter und gelangen schließlich wieder zum Parkplatz. Ich entdecke noch einen Pfeil, der durch eine Röhre unter dem DH
 Auslauf führt, allerdings ist dann unklar, woher der Weg weiter gehen soll. Stefan findet heraus, dass es einfach über
@@ -63,7 +63,7 @@ am Ende herunter springen. Mutig, mutig! Schließlich füllen wir die Erklärung
 "XC Extreme Strecke" trauen wollen und jegliche Verantwortung abgeben. Wir nehmen die Gondel nach oben, wobei die Bikes
 am Sattel eingehängt werden - und das bei meiner etwas kaputten Reverb. Ob das gut geht? Mein Sattel fährt sich durch
 den Zug darauf vollständig aus, aber bleibt dann so hängen. Allerdings neigt sich Stefans Bike immer mehr zur Seite, so
-dass ich immer mehr Angst bekomme es könnte sich verabschieden (und meins mitreißen). Stefan ist wir immer relaxed und
+dass ich immer mehr Angst bekomme es könnte sich verabschieden (und meins mitreißen). Stefan ist wie immer relaxed und
 meint, dass es nicht fallen kann. Ob er Recht hat weiß ich nicht, aber dieses Mal ist es gut gegangen. Von der Gondel
 aus haben wir einen guten Blick über die DH-Strecke, die schon recht eindrucksvoll aussieht, auch wenn Stefan sicher
 ist, dass wir nach dem Blackwater Trail alles schaffen. Oben angekommen spricht uns ein Inder an, ob er Fotos mit uns
@@ -90,8 +90,8 @@ nasse rechte Seite. Leider hat sich Stefan doch so sehr erschreckt, dass er sein
 Büsche geworfen hat, so dass eines der Tauchrohre jetzt einen Kratzer hat... Nach ein paar Minuten Runterkommen fahren
 wir weiter. Es folgen noch einige schöne, flowige Passagen, allerdings bin ich gerade etwas vorsichtig und lasses etwas
 ruhiger als sonst angehen. An der Stelle, an der wir diese Line gekreuzt haben wissen wir plötzlich nicht mehr genau wo wir hin
-müssen. Die Beschilderung lässt leider auch hier etwas zu Wünschen übrig, so dass wir an einer anderen Stelle am Ende
-des Parkplatz heraus kommen, als wir vermutet hatten.
+müssen. Die Beschilderung lässt leider auch hier etwas zu wünschen übrig, so dass wir an einer anderen Stelle am Ende
+des Parkplatzes heraus kommen, als wir vermutet hatten.
 
 Schließlich packen wir alles zusammen und Stefan gibt mir noch 1.000x Kudos für meinen Höllenritt und ärgert sich, dass
 er mich nicht gewarnt hat. Ich versuche ihn zu beschwichtigen, dass es nun wirklich nicht sein Fehler war und nach
@@ -100,8 +100,8 @@ wunderschönen Landschaften vorbei, wobei an einem Parkplatz jede Menge kleine S
 legen mehrfach Pause ein um Fotos zu schießen, so dass wir gut 45 Minuten später die Brücke nach Skye überqueren, als
 das Navi ursprünglich ausgerechnet hat. Wir beschließen spontan in dem Örtchen direkt hinter der Brücke auf Skye zu
 bleiben (Kyleakin) und suchen uns ein B&B. Wir verschieben das Duschen, um das Licht des nach wie vor traumhaften Wetters
-auszunutzen und machen noch ordentlich viele Fotos, bevor wir im gegenüber vom B&B gelegenen Resaurant einkehren. Kaum
-sitzen wir stelle ich fest: Ich habe nur ein Sport-Unterhemnd an... Achievement unlocked - gehe im Unterhemd ins
+auszunutzen und machen noch ordentlich viele Fotos, bevor wir im gegenüber vom B&B gelegenen Restaurant einkehren. Kaum
+sitzen wir stelle ich fest: Ich habe nur ein Sport-Unterhemd an... Achievement unlocked - gehe im Unterhemd ins
 Restaurant! Stefan meint aber, dass es nicht auffällt, immerhin hat es Ärmel und ein paar Beschriftungen. Trotzdem, so
 ganz wohl fühle ich mich nicht in meiner Haut.
 

@@ -29,7 +29,7 @@ Während ich hin und wieder ein genervertes "Man, was ist da los?" von mir gebe,
 sicher, dass wir es auch noch auf die Fähre schaffen. Er sollte Recht behalten, wenngleich wir schließlich das letzte
 Auto sind, das auf die Fähre auffährt. Danach gibt es nur noch Caravans, Busse und LKW.
 
-An Board angekommen schmeißen wir zunächst unseren Plunder für die Nacht in unsere Kabine, schnappen uns unsere DSLRs
+An Bord angekommen schmeißen wir zunächst unseren Plunder für die Nacht in unsere Kabine, schnappen uns unsere DSLRs
 und erkunden das Schiff. Schnell sind wir uns einig, dass die Aufteilung in dem Schiff irgendwie seltsam ist, da alles
 total verstreut wirkt und auf jedem Deck Kabinen zu finden sind. Letztendlich gehen wir raus aufs oberste Deck und
 genehmigen uns bei bestem Wetter aber ordentlich Wind einen Drink zur Einstimmung auf den Urlaub. (Foto) Das Ablegen der

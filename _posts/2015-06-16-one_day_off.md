@@ -1,4 +1,4 @@
----
+You should also switch to Fullscreen not Windowed Fullscreen---
 layout:     post
 title:      "Einen Tag frei"
 subtitle:   "Zwei fast typische Touristen"
@@ -10,13 +10,13 @@ Die Nacht im Doppelbett war erholsam - Stefan und ich sind uns nicht in die Quer
 erneut das typische schottische Breakfast. Wir packen unsere Sachen und fahren einmal um die Nordspitze wieder nach
 Portree. Wetter ist kalt und windig, so dass wir beschließen heute nicht zu biken.
 
-Die Isle of Skye bietet einige Sehenswürdigkeiten. Da wir ohnehin nichts besseres zu tun haben schauen wir uns von
+Die Isle of Skye bietet einige Sehenswürdigkeiten. Da wir ohnehin nichts besseres zu tun haben schauen wir uns vom
 Parkplatz aus den *Kilt Rock* an. Beim nächsten Stop, *Leat Gorge*, klettern wir den schon recht steilen Berg runter.
 Nachdem wir uns eine alte Ruine und die Reste des dazugehörigen Hochofens angeschaut haben und Stefan den Japaner
-spielt, folgen anschließend noch einige Aufnahmen vom Wasserfall mit Langzeitbelichtung, die m.M.n. ziemlich
-ansehnlich werden (Bilder folgen noch).
+spielt, folgen anschließend noch einige Aufnahmen vom Wasserfall mit Langzeitbelichtung, die meiner Meinung nach
+ziemlich ansehnlich wurden (Bilder folgen noch).
 
-Am *Old man of Storr*, eine Felsnadel, die in den Himmel ragt, stehen ziemlich viele Autos. Trotzdem haben wir Glück
+Am *Old man of Storr*, einer Felsnadel, die in den Himmel ragt, stehen ziemlich viele Autos. Trotzdem haben wir Glück
 und finden schnell einen Parkplatz. Den Massenandrang können wir noch nicht so richtig nachvollziehen, da man die
 Felsen oben wegen der tief hängenden Wolkendecke gar nicht sehen kann. Trotz Wind und Nieselregen folgen wir dem Weg
 nach oben bis zu einem Tor, ab wo es steil wird. Wir überlegen umzudrehen, trotzen aber weiter dem Wetter. Wenn wir
@@ -31,13 +31,13 @@ Trotzdem war es eine super Aktion, bei der wieder so ein bisschen Abenteuer-Feel
 Im Auto drehen wir also Klimaanlage auf Maximum und cruisen nach Portree, um uns dort ein Restaurant o.ä. zu suchen. 
 In einer Seitenstraße kehren wir schließlich in einem "Cafe" im ersten Stock ein. Wo wir uns mit einer heißen
 Schokolade und einer warmen Suppe wieder aufwärmen - genau das Richtige! Nachdem wir noch eine Kleinigkeit gegessen
-haben, durchstöbern wir noch in einen Souvenirladen, in dem wir nichts kaufen, decken uns in dem nächsten Supermarkt
+haben, stöbern wir noch in einem Souvenirladen, in dem wir nichts kaufen, decken uns im nächsten Supermarkt
 mit lebensnotwendigen Dingen ein (Kekse, Saft, Irn Brew - Stefans neues Lieblingsgetränk - und Zahnpasta).
 
 Unser nächstes Ziel lautet Applecross, was uns irgend ein freundlicher Einheimischer empfohlen hat. Vorsichtshalber
 rufe ich im Hostel an, um nicht wieder dasselbe Dilemma wie auf Skye zu erleben. Leider ist das Hostel voll, aber wir
 versuchen trotzdem unser Glück. Die Hochstraße nach Applecross ist abenteuerlich, ein Single Track mit Serpentinen und
-teilweise sehr engen Stellen mit Gegenverkehr. Über 400m gelangen wir in die tief hängende Wolkendecke, so dass es auch
+teilweise sehr engen Stellen mit Gegenverkehr. Über 400m gelangen wir in die tief hängende Wolkendecke, sodass es auch
 noch nebelig wird. Auf 640m, der höchsten Stelle, gibt es einen Parkplatz, auf dem wir anhalten. Jedoch ist der Wind
 dermaßen stark, dass Stefan die Tür nicht auf bekommt.
 
@@ -48,7 +48,7 @@ machen. Spontan erklären wir die *Microlodge*, die nichts weiteres als ein Gart
 Matratzen und Steckdose ist, für super. Es gibt sogar Wifi! Also buchen wir die 5*-Luxus-Hütte, hängen unsere teilweise
 noch nassen und mittlerweile müffelnden Klamotten der Vortage an Stefans Militärwäscheleinen auf und fahren runter ins
 Dorf, um etwas zu essen. Die einzige Lokalität dort ist erstaunlicherweise total überlaufen - scheinbar trifft sich
-hier der ganze Ort. Also kaufen wir etwas am draußen stehenden Fresswagen und essen mit Sicht aufs mehr im Auto. 
+hier der ganze Ort. Also kaufen wir etwas am draußen stehenden Fresswagen und essen mit Sicht aufs Meer im Auto. 
 
 Schließlich fahren wir zur Lodge zurück, laden unsere Sachen ein und machen es uns auf den Matratzen gemütlich. Das
 Wifi funktioniert leider nicht. Der Typ an Rezeption sagt, dass es am Wetter liegt, was ich nicht so recht glaube,

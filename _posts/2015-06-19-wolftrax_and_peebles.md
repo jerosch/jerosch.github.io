@@ -1,7 +1,7 @@
 ---
 layout:     post
 title:      "Wolftrax und Peebles"
-subtitle:   "Von Trails, Midges und eine Parade"
+subtitle:   "Von Trails, Midges und einer Parade"
 date:       2015-06-19
 author:     "Roland"
 header-img: "img/2015061901-bg.jpg"
@@ -28,9 +28,9 @@ Gehirn auszuschalten und vorsichtig runter zu rollen. Das Ding ist steil! Mein H
 komme kontrolliert unten an. Leider entweicht dafür sämtliche Luft aus meinem Hinterrad. Also den Esel auf den Kopf
 stellen, Hinterrad ausbauen und von Midges auffressen lassen. Zum Glück hat Stefan dieses Smidge Spray dabei, was die
 Midges etwas abhält. Während ich das Rad aufpumpe fährt Stefan noch eine Runde, damit ich Fotos von ihm machen kann. Die
-Midges nerven trotz Spray noch gewaltig und das Aufpumpen von fast 2 Bar mit der kleinen Pumpe ziemlich anstrengend. So
+Midges nerven trotz Spray noch gewaltig und das Aufpumpen von fast 2 Bar mit der kleinen Pumpe ist ziemlich anstrengend. So
 bin ich noch nicht fertig, als Stefan in Position fürs Fotoshooting geht. Als ich wieder abfahrbereit bin kommt es mir
-die ganze Zeit so vor als würde ich noch Luft verlieren und ich habe zu wenig Luft drin. Aber alles ist gut, diese
+die ganze Zeit so vor als würde ich noch Luft verlieren und ich habe zu wenig Luft drin. Aber alles ist gut, dieseauf 
 Illusion habe ich öfter.
 
 Wir zweigen auf die upper Red ab, die schon einen recht technischen Uphill darstellt. Am höchsten Punkt angekommen
@@ -49,7 +49,7 @@ Trail wieder etwas auflockern. Am Ende angekommen wundere ich mich noch mehr, da
 so dass ich beschieße wieder zurück zu schieben, um zu schauen, ob ihm etwas auf der schwarzen Abfahrt zugestoßen ist.
 Zu meiner Erleichterung taucht er kurze Zeit später dann doch auf.
 
-Wieder untern angekommen muss Stefan erstmal verschnaufen. Er gesteht richtig fertig zu sein, weil der schwarze Trail so
+Wieder unten angekommen muss Stefan erstmal verschnaufen. Er gesteht richtig fertig zu sein, weil der schwarze Trail so
 krass war. Er fand es geil, versichert mir aber, dass ich keinen Spaß gehabt hätte. Ich glaube ihm und bin froh die rote
 gefahren zu sein. Ich erzähle ihm von der roten Abfahrt und kann ihn so überzeugen noch einmal hoch zu fahren, zumal ich
 erst etwa 10km auf dem Garmin habe. Also pedalieren wir wieder gemütlich hoch und Stefan scheint wirklich etwas
@@ -58,7 +58,7 @@ mal wieder an ein paar Stellen hängen bleibe oder mit dem Hinterrad wegrutsche.
 höchsten Punkt, an dem die Abfahrt beginnt. Stefan legt noch einen frischen GoPro Akku rein, dann geht es los. Er gibt
 ein ordentliches Tempo vor, so dass ich es nicht schaffe an ihm dran zu bleiben. Dieses Mal nehme ich auch die
 Steinplatte mit, die ich beim ersten Mal verpasst habe und wähle prompt die falsche Linie, weil ich zu tief herauskomme.
-Ich denke an Stefans Worte, dass es Sinn macht unbekannte Stelle so hoch wie möglich anzufahren und gebe ihm Recht. Am
+Ich denke an Stefans Worte, dass es Sinn macht unbekannte Stellen so hoch wie möglich anzufahren und gebe ihm Recht. Am
 Ende des Trails wartet ein grinsender Stefan, der ganz offensichtlich sehr viel Spaß auf dem Trail hatte. Worte wie
 "Hammer", "Geil", "ich habe alles gegeben", "sorry, dass ich nicht gewartet habe, aber ich konnte einfach nicht"
 schwirren an mir vorbei. Da wir immer noch nicht so richtig viele Kilometer auf der Uhr und nicht alles gesehen haben,
@@ -67,7 +67,7 @@ zurück zur Station zu gelangen. Wir haben etwas Respekt, da Orange eigentlich f
 Schwierigkeit, die es in der schottischen Bike-Einteilung gibt. Ich habe aber unten an einer Tafel gelesen, dass sie nur
 deshalb orange ist, weil man mit genug Speed ordentlich Airtime sammeln kann. Also steigen wir ein und kommen auf eine
 glatte flowige Freeride-Abfahrt mit hohen Anliegern und vielen Tables, die richtig Spaß machen. Wir schlängeln uns den
-Berg hinhab und haben richtig viel Spaß. Eigentlich hätten wir das nochmal fahren sollen, aber wir machen Feierabend,
+Berg hinhab und feiern den Trail. Eigentlich hätten wir das nochmal fahren sollen, aber wir machen Feierabend,
 stellen unsere Bikes ab und essen erst einmal jeweils einen Burger und erfrischen uns an gekühlten Getränken. Nachdem
 wir unsere Bikes wieder auf dem Träger haben nehmen wir auch die Dusche in Anspruch, die genau 5 Minuten (ich habe
 gezählt, Stefan war zuerst) Wasser spendet. Danach ziehen wir uns noch einen leckeren Schokoladenkuchen rein und machen
@@ -80,8 +80,8 @@ MTB-Park liegt und wohl vernünftige Preise ausruft. Wir fahren hin und dort ang
 Franzose in Empfang, zeigt uns die Zimmer und den Bike-Schuppen und quatscht unentwegt. Zwar ist die Unterkunft nicht so
 gehoben, wie wir es von den normalen B&Bs gewohnt sind und Frühstück ist auch nicht inklusive, aber es liegt wirklich
 direkt am Park und der Franzose versichert uns, dass er uns nicht verhungern lassen wird. Was auch immer das heißen mag.
-Dann gibt es uns noch den Tipp, dass wir uns heute auf jeden Fall in Peebles die Parade anschauen sollen, was wir dann
-auch vor haben.
+Dann gibt er uns noch den Tipp, dass wir uns heute auf jeden Fall in Peebles die Parade anschauen sollen, was wir
+ohnehin vor haben.
 
 Zurück in Peebles merken wir schon, dass sich die Straßen langsam füllen. Wir haben Glück, wir kommen noch durch den Ort
 durch, bevor hinter uns die Straße abgeriegelt wird. Auch einen Parkplatz finden wir noch. Überall laufen kostümierte

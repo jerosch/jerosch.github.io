@@ -27,12 +27,12 @@ leichter zu befahren ist. Ich hatte schon so eine böse Vorahnung...
 Etwas weiter die Straße entlang gelangen wir an eine Bucht auf deren Parkplatz einige Leute mit dicken Objektiven an
 ihren Kameras stehen. Wir halten an und schauen etwas planlos auf das Meer hinab, bis uns eine Dame auf etwas im Wasser
 hinweist: In der Bucht tummeln sich drei kleine Wale und Walhaie, von denen wir leider fast ausschließlich die
-Rückenflosse zu sehen bekommen. Schließlich entscheiden wir, dass spannender nicht mehr wird und brechen wieder auf. Kurz
+Rückenflosse zu sehen bekommen. Schließlich entscheiden wir, dass es spannender nicht mehr wird und brechen wieder auf. Kurz
 vor Luib geht es zum Glück auf einen Feldweg, so dass wir die recht stark befahrene Straße hinter uns lassen können. Wir
-gelangen an ein Tor, durch das wir auf eine Schafweide gelangen. Wir schlagen zunächst den falschen Weg ein, aber zum
+gelangen an ein Tor, durch das wir uns auf eine Schafweide schleusen. Wir schlagen zunächst den falschen Weg ein, aber zum
 Glück weist uns das Navi darauf hin, so dass wir die Richtung schnell korrigieren können. Allerdings wartet dort ein
-Schafbock mit eindrucksvollen Hörnern auf uns, der aber zum Glück nicht angriffslustig ist. Um die Ecke auf der anderen
-Seite des Hügels entdecken wir ein totes Schaf, von dem nur noch Knochen und Wolle übrig sind und wir fragen uns, von
+Schafbock mit eindrucksvollen Hörnern auf uns, der aber zum Glück nicht angriffslustig ist. Um die Ecke, auf der anderen
+Seite des Hügels, entdecken wir ein totes Schaf, von dem nur noch Knochen und Wolle übrig sind und fragen uns, von
 wem oder was es wohl erlegt wurde?
 
 Der weitere Weg ist ein schmaler, scheinbar nie enden wollender Singletrack. An vielen Stellen müssen wir sehr sumpfige
@@ -48,7 +48,7 @@ und breit zu sein. Was wahrscheinlich auch stimmt.
 An einer Stelle fahren wir wieder zu weit, so dass wir den besagten Fluss überqueren müssen. Zwar habe ich vorher auch
 keine Brücke gesehen, aber an der aktuellen Stelle ist es wieder sehr matschig. Über das geschickte platzieren von
 dicken Steinen gelingt es uns einigermaßen trocken auf die andere Seite zu gelangen. Allerdings stehen wir nun vor einem
-Sumpf, der ebenfalls zwischen uns und dem angedachten weg liegt und vorher nicht erkennbar war. Wir entscheiden uns
+Sumpf, der ebenfalls zwischen uns und dem angedachten Weg liegt und vorher nicht erkennbar war. Wir entscheiden uns
 dieses Mal die Bikes rüber zu reichen und unsere Weitsprung-Skills zu testen - es funktioniert. Schließlich finden wir
 den Weg wieder und das Spiel aus engen Rinnen, viel Sumpf und teilweise steilen verblockten Anstiegen geht weiter.
 Irgendwann wird das Tal breiter und wir sind wieder fast an einer Straße angekommen, als Stefan noch einmal den Fluss
@@ -78,7 +78,7 @@ erkennen, der sich als relativ schöner und ebener Singletrail entpuppt. Es gibt
 Passagen und dicke Steine. Stellenweise gibt es sogar ein paar Felsplatten á la MacMoab, nur kleiner und ich schaffe
 zwei Passagen, an denen Stefan absteigen muss! Die unzähligen Stellen, an denen er allerdings einfach weiter gefahren
 ist und ich anhalten musste, unterschlage ich hier einfach. ;-) Immer wieder überqueren wir kleine Bäche. Von der
-Distanz und den Höhenmeter her müssten wir eigentlich bald wieder zurück sein, so dass ich mehrfach sage "Das muss der
+Distanz und den Höhenmetern her müssten wir eigentlich bald wieder zurück sein, so dass ich mehrfach sage "Das muss der
 letzte Anstieg sein". Nach dem ich diesen Satz das dritte Mal von mir gegeben habe lasse ich es einfach bleiben. Wir
 begegnen immer mehr Wanderern (sieben) und einem Jogger und fragen uns schon bei wem wir uns beschweren müssen, weil so
 viel los ist. Wir haben Einsamkeit gebucht! Es macht sich das Gefühl breit, dass dieser Trail niemals endet und wir sind

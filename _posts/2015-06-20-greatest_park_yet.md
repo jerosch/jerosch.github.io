@@ -12,7 +12,7 @@ nicht so schlecht aus. Als ich es ihm gleich tue frage ich mich, ob er das ironi
 ziemlich grau ist, die Wolken tief hängen und Nebel aus dem Tal aufsteigt. Beim Frühstück fällt uns auf, dass der
 Bedienungsgehilfe eine gewisse Ähnlichkeit mit einem Igor hat, einem etwas zurückgebliebenen grobschlächtigen Diener.
 Zumindest ist er groß, schaut ein wenig schäl und die schiefen Zähne tragen irgendwie zum Erscheinungsbild bei. Wir
-revidieren unsere Meinung aber, als er der ankommenden jungen Dame Anweisungen gibt und alles im Speisesaal managed.
+revidieren unsere Meinung aber, als er der ankommenden jungen Dame Anweisungen gibt und alles im Speisesaal managt.
 Auch so im normalen Umgang ist er sehr nett und interessiert. Der Franzose kommt aus der Küche und fragt uns nach
 unseren Frühstückswünschen. Er rümpft die Nase, als ich ein vegetarisches Frühstück ordere. Trotzdem bekomme ich einen
 Teller mit frisch gebratenem Gemüse, Champignons, Baked Beans und einer halben Avocado, die ich jedoch Stefan gebe, der
@@ -23,8 +23,8 @@ Schon beim Vorbereiten unserer Bikes stellen wir fest, dass in Glentress etwas m
 den anderen Parks kennen. Direkt unterhalb von uns steht ein kleiner Bus mit Anhänger, der umgeben ist von einer Schaar
 Leuten, die aus diesem allerlei Bikes und Zubehör holen. Der Eindruck bestätigt sich, dass Glentress voll ist, als wir
 an die Station mit Bikeshop und Cafe kommen. Hier steppt der Bär. Da wir zu faul sind den kleinen Berg hochzufahren, um
-auf die Karte der Trails zu schauen oder um zurück am Auto die Faltkarte von Glentress zu holen, kauft Stefan fix eben
-noch eine Karte und begründet die Entscheidung damit, dass wir die Parkgebühren gespart haben. Die schwarze Route sind
+auf die Karte der Trails zu schauen oder zurück am Auto die Faltkarte von Glentress zu holen, kauft Stefan fix eben
+noch eine Karte und begründet die Entscheidung damit, dass wir die Parkgebühren gespart haben. Die schwarze Route ist
 mit 30km angegeben, die rote mit 19km. Nachdem Stefan nachgefragt hat wie schwer die schwarze ist und ihm versichert
 wurde, dass sie viel, viel, viel, viel einfacher als die Laggan Wolftrax ist, wollen wir sie unter die Stollen nehmen.
 
@@ -58,7 +58,7 @@ Bremse würde ich allerdings lieber darauf verzichten und zunächst das Problem 
 Wahnwitzigen Gedanken nach der schwarzen Tour einfach noch die rote zu fahren. So richtig glaube ich nicht dran, aber
 mal schauen.
 
-Weiter geht es noch ein wenig weiter um den Berg hoch, bevor der Trail in eine schön flowige Abfahrt mit ein paar
+Weiter geht es noch ein wenig um den Berg hoch, bevor der Trail in eine schön flowige Abfahrt mit ein paar
 dickeren Steinen übergeht. Wir feiern die Abfahrt und strampeln schon wieder den nächsten Anstieg hoch auf den höchsten
 Abschnitt der Tour mit 600 Metern Höhe. Dort pausieren zwei ältere Biker aus Glasgow, mit denen wir etwas quatschen und
 die schon recht beeindruckt sind, was wir die letzten zwei Wochen so alles gemacht haben, sagen aber auch, dass man
@@ -103,7 +103,7 @@ zurück und nehmen die rote Route in Angriff.
 Einen großen Teil des Aufstiegs kennen wir bereits, da dieser mit der schwarzen gemeinsam verläuft. Inzwischen ist es
 auch schon ziemlich leer auf den Wegen geworden. Der Himmel ist mittlerweile richtig schön blau und die Sonne knallt auf
 uns herab. Wir freuen uns dermaßen darüber, dass Schottland es noch einmal so gut mit uns meint, dass ich schon anfange
-irgend einen poetischen Quatsch zu faseln. Wir drehen noch eine Runde über den Downhill-Übungsparkour, auf dem
+irgend einen poetischen Quatsch zu faseln. Wir drehen noch eine Runde über den Downhill-Übungsparcours, auf dem
 einiges los ist und segeln über Steilkurven und jede Menge Tables wieder auf die rote Route zurück. An der Stelle, wo
 es zur ersten Abfahrt der roten Tour kommen soll, stellen wir etwas enttäuscht fest, dass diese gesperrt ist. Es liegen
 aber so viele Bäume auf dem Weg rum, dass wir das gut nachvollziehen können. Also fahren wir die Umleitung und weiter
@@ -117,7 +117,7 @@ Am Ende des Trail haben wir immer noch fast 200 Hm zu viel gegenüber dem Start,
 Route sehr optimistisch stimmt. Nach einem weiteren Uphill folgt ein weiterer Downhill, auf dem jetzt auch ein paar
 dicke Wurzeln und Löcher im Weg zu finden sind. Alles egal, wir brettern einfach überall drüber und treffen uns langsam
 doch etwas geschafft, aber glücklich am Ende des Trails wieder. Als die schwarze und rote Route wieder zusammenführen
-und es eigentlich zu einer der letzten Abfahrten geht, entdecken wir oberhalb noch ein Weg, den wir nicht so richtig
+und es eigentlich zu einer der letzten Abfahrten geht, entdecken wir oberhalb noch einen Weg, den wir nicht so richtig
 zuordnen können. Ein Blick auf den Plan zeigt uns schnell: Das wäre die Abkürzung der roten Linie gewesen. Da ich noch
 Kraftreserven spüre und es unser letzter Tag ist, schlage ich vor noch einmal die Waldautobahn hoch zu strampeln und
 diese Abfahrt auch noch mitzunehmen. Ich glaube Stefan wundert sich in diesem Moment sehr über mich, jedenfalls lässt
@@ -130,7 +130,7 @@ verabschieden wir uns etwas wehmütig von Glentress und damit von unserem vorers
 
 Da die Sonne so schön scheint beschließen wir vor der Dusche noch auf der Terasse des Hotels zu verweilen, erzählen ein
 wenig über die tollen Dinge, die wir erlebt haben und lassen uns von der Sonne wärmen. Nachdem wir geduscht haben,
-versuchen wir im Hotel noch ein Platz fürs Abendessen zu bekommen, aber jeder Tisch ist belegt. Der Laden scheint auch
+versuchen wir im Hotel noch einen Platz fürs Abendessen zu bekommen, aber jeder Tisch ist belegt. Der Laden scheint auch
 ein sehr gut gehendes Steak-Restaurant zu sein. Also kutschiert Stefan uns nach Peebles, wo immer noch Ausnahmezustand
 auf Grund des Beltane Festes herrscht. Aus dem Grund sind so ziemlich alle Lokalitäten überfüllt, so dass wir bei einem
 Inder einkehren, der noch Plätze für uns frei hat. Deutlich geschafft von den Anstrengungen des Tages fällt unsere

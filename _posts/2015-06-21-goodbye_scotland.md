@@ -17,7 +17,7 @@ Schottland. Scheinbar sind wir nicht schnell genug, da wir von ein paar Autos ü
 man sich an die Tempolimits hält.
 
 Die Fahrt verläuft ohne Zwischenfälle, so dass wir viel zu früh an der Fähre ankommen. Also fahren wir auf den
-Schopping-Center-Parkplatz, auf dem wir bei der Ankunft die Tourist-Information gefunden haben. Wir schlendern ein
+Shopping-Center-Parkplatz, auf dem wir bei der Ankunft die Tourist-Information gefunden haben. Wir schlendern ein
 wenig durch die Gegend, schauen in dem einen oder anderen Gift-Shop herein, wo ich schließlich auch noch etwas
 einkaufe. Mit nach wie vor genug Zeit auf der Uhr kehren wir noch im Subway ein und schaffen es die Bedienung durch
 ständiges Nachfragen, langsame Entscheidungsfindung und wahrscheinlich falsche Wortwahl zu nerven. Nichts desto trotz
@@ -37,7 +37,7 @@ von George R. R. Martin mit seinen 1184 Seiten in kleiner Schriftart wird mich a
 beschäftigen. Jedenfalls beschließt Stefan sich in unsere Kajüte zu verziehen, da er müde und es in der Bar auch
 relativ frisch ist. Ich halte noch ein wenig länger aus, bevor ich mein Kapitel abschließe und etwas über das Schiff
 schlendere um mir ein paar ausgestellte Modellschiffe und deren Historie anzuschauen. Als ich wieder in unsere Kabine
-komme meint Stefan, dass unser Abendessen schon eine Stunde vorher stattfindet, als ich es ursprünglich angekommen
+komme meint Stefan, dass unser Abendessen schon eine Stunde vorher stattfindet, als ich es ursprünglich angenommen
 hatte, da das Schiff die Uhrzeit bereits auf MESZ umgestellt hat. Ich frage zur Sicherheit noch einmal nach und
 tatsächlich, Stefan behält Recht. Wie eigentlich fast immer. So verpassen wir den Andrang am Restaurant und werden
 direkt in Empfang genommen und zu unseren Plätzen geführt. Wir schlagen uns mal wieder richtig die Bäuche voll, was
@@ -54,7 +54,7 @@ Kurz gesagt, es waren zwei einfach geile Wochen. In der ersten Woche hatten wir 
 Mountainbike Trails unter die Räder genommen, unsere Unterkünfte waren immer in Ordnung und es hat einfach immer alles
 gepasst. Auch die Herzlichkeit und Offenheit der Schotten hat uns immer wieder begeistert. So einen lockeren und
 freundlichen Umgang findet man in Deutschland wahrscheinlich nicht so oft, während er dort selbstverständlich ist.
-Besonders beeindruckend ist aber, was wir erlebt haben. Beim Abendessen auf der Fähre sind wir ja nochmal unsere ganzen
+Besonders beeindruckend ist aber, was wir erlebt haben. Beim Abendessen auf der Fähre sind wir nochmal unsere ganzen
 Stationen durchgegangen: Newcastleton, New Abbey mit Mabie und Ae Forest, Dalbeattie, Newton Stewart, Kirroughtree,
 Loch Lomond und Umgebung, Kinlochleven mit dem Blackwater Trail, Fort William, dann Skye mit der Sligachan Loop und
 einem Tag Sightseeing (mit Kletteranteil), Applecross und dem Trail nach Torriden, schießlich Aviemore im *Cairngorms

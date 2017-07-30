@@ -67,18 +67,18 @@ Indoor-Eiskletterwand der Welt handelt.
 
 Am Hostel verwenden wir den Wasserschlauch um erst einmal den groben Dreck von Bike und Mensch abzusprühen. Zwar sind
 unsere Sachen jetzt klatsch nass, aber immerhin einigermaßen sauber. Wir gehen duschen, was nach der Kälte und dem
-kalten Wasser aus dem Schlauch so *richtig* gut tut. Wir verstauen unsere nasses Zeug im Auto und beschließen noch etwas
+kalten Wasser aus dem Schlauch so *richtig* gut tut. Wir verstauen unser nasses Zeug im Auto und beschließen noch etwas
 in Kinlochleven zu essen, bevor wir uns auf den Weg nach Fort William machen. Also kehren wir auf der anderen Seite der
 Brücke in einem Gasthaus ein, die ein Schild draußen stehen haben, dass es zwei Gerichte für 12 Pfund gibt - das klingt
-fair. Der Pub scheint so der lokale Treffpunkt zu sein, jedenfalls ist ziemlich viel los. In der Mitte des Raumes steht
-ein großes Billardtisch, an dem einige Leute - jung und alt - spielen und sich abwechseln. Hin und wieder wird die
-moderne Jukebox (mit Touchscreen) bedient, so dass eine tolle Athmosphäre entsteht, die ich genieße und in mich
+fair. Der Pub scheint der lokale Treffpunkt zu sein, jedenfalls ist ziemlich viel los. In der Mitte des Raumes steht
+ein großer Billardtisch, an dem einige Leute - jung und alt - spielen und sich abwechseln. Hin und wieder wird die
+moderne Jukebox (mit Touchscreen) bedient, so dass eine tolle Atmosphäre entsteht, die ich genieße und in mich
 aufsauge.
 
 Schließlich brechen wir Richtung Fort William auf. Die Fahrt ist wenig späktakulär und so parken wir zunächst irgendwo,
 um uns mit den Begebenheiten vertraut zu machen. So schlendern wir durch die Fußgängerzone, die schon recht gut auf
 Tourismus ausgelegt sind. B&Bs in der Innenstadt gibt es allerdings nicht, also fragen wir Google Maps und finden eins
-das sehr gut Bewertungen habt. Auf einmal verschwindet es von der Ansicht, so dass wir einfach das erst beste B&B
+das sehr gute Bewertungen hat. Auf einmal verschwindet es von der Ansicht, so dass wir einfach das erst beste B&B
 anfahren, das uns optisch zusagt und auch noch frei ist. Und tatsächlich, auch das ist super. Es handelt sich um eine
 umgebaute Garage und Werkstatt, von dem man aber nichts mehr sieht. Alles wirkt sehr gehoben und wir haben sogar unser
 eigenes WLAN. Wir hängen unsere nassen Sachen auf und verschwinden zu Fuß in der Stadt, um mal wieder etwas zu essen.
