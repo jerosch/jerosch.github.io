@@ -20,7 +20,7 @@ schon ganz neidisch darauf geschielt hat. Wir sind etwas unsicher, ob wir das Fr
 aber als wir aufstehen und uns Igor einen schönen Tag wünscht, sind wir recht zuversichtlich, dass wir so gehen dürfen.
 
 Schon beim Vorbereiten unserer Bikes stellen wir fest, dass in Glentress etwas mehr los sein dürfte, als wir das von
-den anderen Parks kennen. Direkt unterhalb von uns steht ein kleiner Bus mit Anhänger, der gerade von einer Schaar
+den anderen Parks kennen. Direkt unterhalb von uns steht ein kleiner Bus mit Anhänger, der umgeben ist von einer Schaar
 Leuten, die aus diesem allerlei Bikes und Zubehör holen. Der Eindruck bestätigt sich, dass Glentress voll ist, als wir
 an die Station mit Bikeshop und Cafe kommen. Hier steppt der Bär. Da wir zu faul sind den kleinen Berg hochzufahren, um
 auf die Karte der Trails zu schauen oder um zurück am Auto die Faltkarte von Glentress zu holen, kauft Stefan fix eben
@@ -41,7 +41,7 @@ Ich frage noch, ob ein Downhill kommt, aber er verneint und berichtet, dass es n
 recht schwer ist. Stefan und ich geben Gas. Richtig viel Abfahrt kommt nicht, so dass wir wieder ein Stück hoch müssen
 und machen an der besagten Stelle Pause. Der Kollege von gerade schließt zu uns auf und nach ein wenig Small-Talk und
 kurzer Musterung unserer Bikes schickt er uns vor. Ein paar Dicke Steine und kleinere Stufen auf einem recht steilen
-Stück zwingen uns zum langsam fahren, allerdings ist es auch nicht schwieriger als andere Dinge, die wir schon gefahren
+Stück zwingen uns zum langsam fahren, allerdings ist es auch nicht schwieriger als andere Dinge, die wir schon bewältigt
 sind. Es folgt wieder ein sehr langer Uphill, der teilweise auch sehr steil ist. Bei einer weiteren Pause werden wir
 wieder vom Hardtail-Mann überholt, den wir ab da nicht wieder sehen. Weiter oben stelle ich fest, dass irgend etwas an
 meinem Vorderrad ziemlich eklig quietscht. Nach einem kurzen Blick auf die Bremse finden wir auch den Grund - die
@@ -49,11 +49,11 @@ Beläge sind vollständig abgefahren. Ich ärgere mich etwas, dass ich da nicht 
 welche im Auto habe, bin aber zu faul die Beläge von hinten nach vorn zu wechseln. Also geht es ab dort fast nur noch
 mit der Hinterradbremse weiter.
 
-Der Anstieg auf den Berg scheint sich ewig hinzuziehen. Die 300Hm fällt, schließlich auch die 400Hm Marke. So haben wir
+Der Anstieg auf den Berg scheint sich ewig hinzuziehen. Die 300Hm-Marke fällt, schließlich auch die 400Hm Marke. So haben wir
 bereits etwa 450Hm gesammelt, als wir an einer Hütte auf dem Berg ankommen. Wir genießen die Aussicht und ich stelle
 fest, dass ich bei 450 Hm in den Beinen schon bedeutend erschöpfter war. Das Training der letzten zwei Wochen scheint
 sich endlich auszuzahlen. Wir studieren den Plan und überlegen, ob wir einen Teil der roten Route in die schwarze
-übernehmen, da uns Mr. Hardtail erzäht hat, dass diese Passage in der roten sehr schön ist. Mit meiner ausgelaugten
+übernehmen, da uns Mr. Hardtail erzählt hat, dass diese Passage in der roten sehr schön ist. Mit meiner ausgelaugten
 Bremse würde ich allerdings lieber darauf verzichten und zunächst das Problem beheben. Also spinnen wir den
 Wahnwitzigen Gedanken nach der schwarzen Tour einfach noch die rote zu fahren. So richtig glaube ich nicht dran, aber
 mal schauen.
@@ -67,7 +67,7 @@ Sie geben uns noch die Empfehlung statt der Beschilderung zu folgen zunächst in
 einzusteigen, der Teil der schwarze Route werden soll, aber noch nicht richtig integriert ist. Gesagt getan und so geht
 es bis zum nächsten Waldweg um enge Kurven und für einen schwarzen Trail ziemlich glatten Boden. Wir folgen wieder den
 Wegweisern und tauchen wieder in richtig tolle Abfahrten mit engen Kurven, Anliegern und jeder Menge dickerer Steine,
-die den Abstieg für mein Bike schon recht ruppig gestalten. Ich wünsche mir mindestens 20 Mal wieder Bremsen vorne und
+die den Abstieg für mein Bike schon recht ruppig gestalten. Ich wünsche mir mindestens 20 Mal eine funktionierende Vorderradbremse und
 eine Kurventechnik, die den Namen auch verdient. Trotzdem habe ich auch eine Menge Spaß, so dass ich langsam nicht mehr
 sicher bin, ob Ae Forest wirklich der beste 7Stanes ist. Die schwarze Route windet sich weiter den Berg hinunter,
 schickt uns wieder ein paar Anstiege hoch und uns wird richtig warm. Kein Wunder, denn die Wolkendecke ist aufgerissen
@@ -78,7 +78,7 @@ haben erstarren sie fast vor Ehrfurcht und es fallen Sprüche wie "I knew the Ge
 "They know our country better than we do!". Das erfreut uns natürlich sehr und hinterlässt das Gefühl, dass wir nur
 alles richtig gemacht haben können. Wir fahren weiter, bis wir zu der Abfahrt "Deliverance" kommen und hier wird
 ordentlich "delivered". In langen Serpentinen mit steilen Kurven, einigen Sprüngen und ruppigem Gelände windet sich der
-Trail Berg hinunter und schließlich am Hang entlang. Ich höre von hinten jemanden schreien und einer der Jungs von
+Trail den Berg hinunter und schließlich am Hang entlang. Ich höre von hinten jemanden schreien und einer der Jungs von
 vorhin ballert auf dem Trail an mir vorbei und überholt sogar noch Stefan, als er am nächsten Anstieg, der es auch
 richtig in sich hat, auf seine Kollegen wartet. Die nächsten Abfahrten sind alle etwas technischer. Dicke Wurzeln,
 große Steine mit Stufen säumen unseren Weg und tiefe Löcher im Weg schütteln mich ordentlich durch. Schließlich
@@ -101,16 +101,16 @@ sich wieder! Glücklich und stolz, dass wir es selbst geschafft haben, geben wir
 zurück und nehmen die rote Route in Angriff.
 
 Einen großen Teil des Aufstiegs kennen wir bereits, da dieser mit der schwarzen gemeinsam verläuft. Inzwischen ist es
-auch schon ziemlich leer auf den Wegen geworden. Der Himmel ist inzwischen richtig schön blau und die Sonne knallt auf
+auch schon ziemlich leer auf den Wegen geworden. Der Himmel ist mittlerweile richtig schön blau und die Sonne knallt auf
 uns herab. Wir freuen uns dermaßen darüber, dass Schottland es noch einmal so gut mit uns meint, dass ich schon anfange
-irgend einen poetischen Quatsch zu faseln. Wir drehen noch eine Runde über den Downhill-Übungsparkour, auf dem noch
+irgend einen poetischen Quatsch zu faseln. Wir drehen noch eine Runde über den Downhill-Übungsparkour, auf dem
 einiges los ist und segeln über Steilkurven und jede Menge Tables wieder auf die rote Route zurück. An der Stelle, wo
 es zur ersten Abfahrt der roten Tour kommen soll, stellen wir etwas enttäuscht fest, dass diese gesperrt ist. Es liegen
 aber so viele Bäume auf dem Weg rum, dass wir das gut nachvollziehen können. Also fahren wir die Umleitung und weiter
 einen recht steilen Anstieg hoch. Wir wundern uns, dass wir noch einmal auf über 500 Meter Höhe gelangen und
 beschließen, dass dies aber die Auffahrt sein muss, die wir in die schwarze Runde hätten integrieren können. Als wir
 dann in den Trail einsteigen bricht wieder eine Flow-Lawine über uns herein. Richtig schöne Kurven und springbare
-Tables lassen unser Herz höher schlagen. So kommt es, dass sich regelrechte Euphorie in mir ausbreitet und ich darüber
+Tables lassen unsere Herzen höher schlagen. So kommt es, dass sich regelrechte Euphorie in mir ausbreitet und ich darüber
 schwadroniere, wie super hier doch alles ist.
 
 Am Ende des Trail haben wir immer noch fast 200 Hm zu viel gegenüber dem Start, was uns für den weiteren Verlauf der

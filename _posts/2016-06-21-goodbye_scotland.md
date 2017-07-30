@@ -11,7 +11,7 @@ einmal alles ins Auto, bevor wir uns dazu entschließen im Hotel noch zu frühst
 traurig darüber, dass wir es verlassen. Außer einer Familie sind sonst keine Gäste im Speisesaal. Obwohl ich nur ein
 kleines Frühstück bestelle bekomme ich ein ganzes. Gut, ich beschwere mich nicht. Nachdem wir unsere Bikes aus dem
 Schuppen geholt und sicher auf dem Träger am Auto befestigt haben, geht es auch schon los. Zunächst noch einmal nach
-Peebles um zu tanken und Ausschau nach Souvernir-Shops zu haben. Da Sonntag ist haben wir bei letzterem kein Glück und
+Peebles um zu tanken und Ausschau nach Souvernir-Shops zu halten. Da Sonntag ist haben wir bei letzterem kein Glück und
 so setzen wir unsere Koordinaten auf Newcastle und Stefan beamt uns die Landstraßen entlang. Ein letztes Mal Ralley in
 Schottland. Scheinbar sind wir nicht schnell genug, da wir von ein paar Autos überholt werden. Der Preis dafür, dass
 man sich an die Tempolimits hält.
@@ -68,4 +68,4 @@ hatten. Ullapool, Tongue und Golspie beispielsweise sind auf der Strecke geblieb
 denen wir waren hätte man locker noch einige Tage mehr verbringen können, bei Aviemore und Peebles zum Beispiel jeweils
 ohne Weiteres eine ganze Woche. So kann ich im Grunde unsere Tour "nur" als Kratzen an der Oberfläche der schottischen
 Bike-Möglichkeiten bezeichnen. Trotzdem oder gerade deshalb glaube ich: Wir haben alles richtig gemacht. Naja, fast.
-Ich würde schon vorher das Anti-Midges-Spray kaufen. Die Biester sind echt nervig. ;)
+Ich würde schon früher das Anti-Midges-Spray kaufen. Die Biester sind echt nervig. ;)
