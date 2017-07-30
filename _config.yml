@@ -2,6 +2,7 @@
 title: "Roland's blog"
 header-img: img/home-bg.jpg
 email: jotteres@gmail.com
+copyright_name: Roland Schneider
 description: "Random stuff about mountainbiking, coding, music and life in general"
 baseurl: ""
 url: "http://www.schneiderroland.de"
@@ -14,7 +15,9 @@ google_analytics_code: UA-65302967-1
 
 # Build settings
 markdown: kramdown
-highlighter: pygments
+highlighter: rouge
 permalink: pretty
 paginate: 5
 exclude: ["less","node_modules","Gruntfile.js","package.json","README.md"]
+
+gems: [jekyll-paginate, jekyll-feed]
