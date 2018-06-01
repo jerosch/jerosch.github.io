@@ -1,4 +1,4 @@
-You should also switch to Fullscreen not Windowed Fullscreen---
+---
 layout:     post
 title:      "Einen Tag frei"
 subtitle:   "Zwei fast typische Touristen"
