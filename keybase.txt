@@ -1,0 +1,75 @@
+==================================================================
+https://keybase.io/jerosch
+--------------------------------------------------------------------
+
+I hereby claim:
+
+  * I am an admin of https://schneiderroland.de
+  * I am jerosch (https://keybase.io/jerosch) on keybase.
+  * I have a public key with fingerprint 4DA4 9ACC B234 B9BD DA9A  8DCC 112E 2CB5 0196 5AC5
+
+To do so, I am signing this object:
+
+{
+  "body": {
+    "key": {
+      "eldest_kid": "012088c4326375237b6f1412a22b2a87b1ed14e4dba184bc8d34fe5967bec5ed78420a",
+      "fingerprint": "4da49accb234b9bdda9a8dcc112e2cb501965ac5",
+      "host": "keybase.io",
+      "key_id": "112e2cb501965ac5",
+      "kid": "0101deaa5f44a87a1c5d5aa759a5447257ed036e58a64256c544b8ac5c054b86206c0a",
+      "uid": "61e666dc95d258925e48d09bff170519",
+      "username": "jerosch"
+    },
+    "service": {
+      "hostname": "schneiderroland.de",
+      "protocol": "https:"
+    },
+    "type": "web_service_binding",
+    "version": 1
+  },
+  "ctime": 1717664567,
+  "expire_in": 157680000,
+  "prev": "6ab1b729e61a63b6ab13979a0808ea3c12fa354f63bf73d776d8aee65f28af32",
+  "seqno": 25,
+  "tag": "signature"
+}
+
+which yields the signature:
+
+-----BEGIN PGP MESSAGE-----
+Version: Keybase OpenPGP v2.1.13
+Comment: https://keybase.io/crypto
+
+yMN1AnicbVJrTBRXFN6loC3FBxUlQUpxBKJbwHndeaxNiLQ1VXk0xSZgLZs7M3dg
+ZNmB3YUFVh5tDFSNSBNYWi1IW4iJzSLaUIKAPAKGljYohoc11gRaQYiKkMZAKXaG
+6L/eP/eec77vu985Of0bXjH4GwNjo1uNniMDxqHeujyDDN2sGxNUqRAzu7EstHYh
+q4QcTkuWImFmDCdInONEmiIZigUkxQqMTNAECUlSICHHCgSSCBrRkgAJjhZETqJo
+GQGeYQUkAiSxHE3iEIvGZMWWgew5dsXm1GRpCdI8FEWBpGiBFyQJ8pCTRJEgSESK
+AsAJngFQBBoxU3XoDM2cAB0oVlG1nBZY1uz9D/6lb5yQEIRApmnNJiREIAEIWcBD
+QNMsCVgk4RSDAAcZmgSMqGUFTlMQcaA9GBJnxDXfeWtyDIEYhpFEHkgk4HgSIJqT
+cF6QZYLFAcHrQAey22A20tDHkF11iJlYcTSmJfMVEelz1Rt5AdCKNqRIyG5XrdAm
+xUpIE8ixq05VVK1aPdPpzHGYdb6zMEcnuJBgeSFlERSbpA1TY+Qju0NRbZiZ0JCi
+U9G1CZZgGYYGDBuNoYIcxY4sio4ALMPh2tH/Qfl6S1AgBJbkEUNAhhL0kOJZHuIc
+ziFIiQQpQwrQslaTWUpiWUbiIEIMkEkOyhSJ6c3l2lTMTALNJ8zQ+1IybNCZZ0dY
+cV/vUV+D0d+wzs9H3zKD/2ubX+7euLTp+f44Y8P093krpTFtJXfdt5xf7Nky2Vjx
+5i/jvnGDT+vbs8bS+r9tJnprk5uKagNaTycvZ3+T7Qnb7gqfvd6Z4Dvw1t5XAxpu
+mJrqR/ZFTYZGXZ19UF1Ud3thLJFezN6ywu6+dLJl1ZDpDD238rtfccqBsyOm50nt
+532imi/c/HSnr9ePjt5WcnDzzzfMaddKWk0X2oPmRiabngz9/WBjaWGX8fy13K6A
+exuOdJ6eqEpIPZTwLCS9bVzxfBK/kHq1e6Aj5o3gIOrHA3O9b1fVGGdazrlMJ6gs
+de5hyle7DT8lTa9/cgIvWxx93dVg9Mj2MmtA1nxi7SmfL9+V59KeqpHiMHVnoi8m
+KaHwrsPFnF2uG/3u5Mj76Rk1XeGzj5s/4MKX/qruqR3dCo5P1PzrOdzs7e4YCx16
+9nBmtWKoOCLOf+pMXZV7fvVKxHz9WK8XDHy0cHA1tDI48GLTjkt3+pzthyqKPrZY
+c/9BZZu8uzo/b4gr6J6+31prs+1X9/j7XJ/Z9s50z9HyjrCQH259Npqw/fKjng9D
+kvDi4amNG4NN8b9Rq96gsMeu4/squ4XlaiKiIXEycoksWGe6fzjW3bHjT6v6XvzO
+P256lYh6D5/aUnp5YldNeH9Q9d57nrZHlZGNF+FMzdKx8tatyV9PUeuzBzNSK8sH
+B2bOpAemD99e/HX4SkqjfMrX9R/o+MfH
+=+dgO
+-----END PGP MESSAGE-----
+
+And finally, I am proving ownership of this host by posting or
+appending to this document.
+
+View my publicly-auditable identity here: https://keybase.io/jerosch
+
+==================================================================
